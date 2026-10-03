@@ -7,7 +7,7 @@
 
  Snehal Dhumale 
  
- Financial Analyst 
+  Banker and Financial Analyst 
  
  snehaldhumale4@gmail.com
  
